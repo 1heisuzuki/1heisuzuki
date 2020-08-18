@@ -1,7 +1,6 @@
 ![](https://1heisuzuki.com/img/multires/works_20200301_1164w.jpg)
 
 ### Ippei Suzuki / 鈴木 一平
-**Researcher / Engineer / Videographer**
 - **HP** - https://1heisuzuki.com
 - **Twitter** - https://twitter.com/1heisuzuki
 - **Facebook** - https://www.facebook.com/1heisuzuki
