@@ -1,4 +1,4 @@
-![](https://1heisuzuki.com/img/multires/works_20200301_1164w.jpg)
+![](https://1heisuzuki.com/img/multires/works_20200825_1164w.jpg)
 
 ### Ippei Suzuki / 鈴木 一平
 **HP** - https://1heisuzuki.com  
